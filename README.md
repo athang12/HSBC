@@ -4,7 +4,7 @@
 
 ![s2](https://github.com/user-attachments/assets/a53a1b56-f75e-4f62-942d-8f8f86ffc492)
 
-(https![ss1](https://github.com/user-attachments/assets/1f69d6be-c8ff-4129-97e4-4977bc6a241b)
+![ss1](https://github.com/user-attachments/assets/1f69d6be-c8ff-4129-97e4-4977bc6a241b)
 
 This is the Solution problem statemnet 2
 
